@@ -23,4 +23,4 @@
 
 ## Author
 
-Your Name
+Amoako Albert Nana Kwesi - 11227686
